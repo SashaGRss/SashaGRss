@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SashaGRss
+- 👀 I’m interested in Economics and Digital Markets 
+- 🌱 I’m currently working on Digitalisation's impact on local growth and employment 
+- 💞️ I’m looking to collaborate on stuff <3
+- 📫 How to reach me sasha.grassini@polito.it
